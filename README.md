@@ -1,3 +1,3 @@
-xbjsq new url
+小白加速器最新网址
 
-最新网址: www.xbjsq.me
+官网地址  www.xbjsq.me
